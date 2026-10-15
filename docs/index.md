@@ -4,6 +4,8 @@
 
 ![昆士兰科技大学毕业证样本（澳洲qut学位文凭证书样式展示）](https://www.cererfi.com/uploads/img1/20261014/6acf1494f2a23.jpg)
 
+💡 *图片来源声明：该图源自 [https://www.cererfi.com/auzhou/63.html](https://www.cererfi.com/auzhou/63.html) 未经授权禁止用于商业用途。*
+
 深入解析 QUT 的毕业证范本样式，不仅能够让涉外背调机构、跨国企事业单位 HR 建立精准的视觉参照，更能帮助广大校友清晰了解自身学术荣誉背后的设计美学与防伪特征。本文将针对 QUT 极具代表性的王牌专业——**护理学学士（Bachelor of Nursing with Distinction）** 的真实证书样本进行全方位、深层次的拆解。
 
 ---
