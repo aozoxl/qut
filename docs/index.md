@@ -2,7 +2,7 @@
 
 在评估全球高等教育文凭的学术含金量与国际公信力时，**昆士兰科技大学（Queensland University of Technology，简称 QUT）** 颁发的官方学位证书（Testamur）凭借其前沿的视觉设计语言与严密的物理防伪技术，在南半球乃至全球学术界都享有极高的声誉。作为一所稳居世界前200强的顶级公立研究型大学，QUT 以“一所专注于现实世界的大学”（A University for the Real World）为办学宗旨，这种务实且充满现代科技感的理念不仅体现在其教学中，也深深烙印在其毕业证书的每一处排版细节之中。
 
-<img width="563" height="800" alt="澳大利亚毕业证样本及学位证文凭样本模版(Queensland University of Technology Diploma/Certificate of Degree)" src="qut-diploma.jpg" />
+<img width="563" height="800" alt="澳大利亚昆士兰科技大学毕业证样本及学位证文凭样本模版(Queensland University of Technology Diploma/Certificate of Degree)" src="qut-diploma.jpg" />
 
 
 深入解析 QUT 的毕业证范本样式，不仅能够让涉外背调机构、跨国企事业单位 HR 建立精准的视觉参照，更能帮助广大校友清晰了解自身学术荣誉背后的设计美学与防伪特征。本文将针对 QUT 极具代表性的王牌专业——**护理学学士（Bachelor of Nursing with Distinction）** 的真实证书样本进行全方位、深层次的拆解。
